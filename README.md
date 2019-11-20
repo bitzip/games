@@ -8,7 +8,7 @@
 
 ## 2018
 ### Switch
-1. 超级马里奥奥德赛 Super Mario Odyssey
+1. 超级马里奥奥德赛, Super Mario Odyssey
 
 ## 2017
 ### Swtich
