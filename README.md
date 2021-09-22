@@ -1,5 +1,8 @@
 # Games
 
+## 2021
+1. 巫师3：狂猎
+
 ## 2019
 ### Switch
 1. 异度神剑 2， Xenoblade Chronicles 2
