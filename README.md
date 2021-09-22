@@ -1,11 +1,19 @@
 # Games
 
 ## 2021
+### PlayStation 4
 1. 巫师3：狂猎
+
+### Switch
+1. 煮糊了 1
 
 
 ## 2020
+### PlayStation 4
 1. 血源诅咒
+
+### Switch
+1. 胡闹搬家
 
 ## 2019
 ### Switch
