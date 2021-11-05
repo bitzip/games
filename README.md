@@ -3,7 +3,7 @@
 ## 2021
 ### PlayStation 4
 1. 巫师3：狂猎
-2. 地平线：零之曙光
+2. 地平线：零之曙光 Horizon Zero Dawn
 
 ### Switch
 1. 煮糊了 1
