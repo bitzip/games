@@ -2,7 +2,7 @@
 
 ## 2021
 ### PlayStation 4
-1. 巫师3：狂猎
+1. 巫师3：狂猎 The Witcher 3: Wild Hunt
 2. 地平线：零之曙光 Horizon Zero Dawn
 
 ### Switch
