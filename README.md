@@ -1,5 +1,9 @@
 # Games
 
+## 2022
+### PlayStation 5
+1. 艾尔登法环
+
 ## 2021
 ### PlayStation 4
 1. 巫师3：狂猎 The Witcher 3: Wild Hunt
