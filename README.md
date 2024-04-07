@@ -5,7 +5,7 @@
 
 ## 2022
 ### PlayStation 5
-1. 艾尔登法环
+1. Elden Ring (艾尔登法环)
 
 ## 2021
 ### PlayStation 4
