@@ -1,5 +1,8 @@
 # Games
 
+## 2023
+1. Red Dead Redemption 2 (荒野大镖客：救赎2)
+
 ## 2022
 ### PlayStation 5
 1. 艾尔登法环
